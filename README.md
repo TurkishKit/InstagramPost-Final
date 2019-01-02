@@ -1,1 +1,1 @@
-# InstagramPost Final Projesi
+# Instagram Post Final Projesi
